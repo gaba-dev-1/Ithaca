@@ -82,5 +82,8 @@ Long-term planning for thriving communities:
 
 **Return and Renewal**: The cyclical nature of destruction and rebuilding, loss and recovery, that characterizes human resilience.
 
+https://pmc.ncbi.nlm.nih.gov/articles/PMC3268181/
+https://pmc.ncbi.nlm.nih.gov/articles/PMC6436976/
+
 </div>
 
